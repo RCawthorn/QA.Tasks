@@ -1,4 +1,4 @@
 # Learning Git
 ## With Chris
-### With the Wonder SHAFEEEEEQ!
+### With the 8th Wonder of the world The SHAFEEEEEQ!
 
